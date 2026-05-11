@@ -1,4 +1,4 @@
-
+Enhance Figma for macOS with Figma for macOS rare Extension - vector tools and vector export, the #1 extension. Includes vector tools and vector export for a smoother and more
 
 
 
